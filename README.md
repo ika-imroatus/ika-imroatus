@@ -1,5 +1,5 @@
 # Halo, Saya Imro’atus Sholikhah, S.H. 👋
-**Fresh Graduate Hukum Keluarga Islam | Administrative Specialist | Legal Educator**
+**Fresh Graduate Hukum Keluarga Islam | Administrative | Legal Educator**
 
 > Lulusan Hukum dari Universitas Islam Negeri Sunan Ampel Surabaya dengan IPK 3,79. Saya memiliki pengalaman magang sebagai sekretaris di Pengadilan Agama dan Kantor Urusan Agama (KUA). Terampil mengoperasikan Microsoft Word, Microsoft Power Point, dan Microsoft Excel. Serta berpengalaman dalam mengelola pengarsipan dokumen secara sistematis dan memberikan pelayanan masyarakat.
 
