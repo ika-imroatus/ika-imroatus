@@ -45,8 +45,11 @@
 * **Pemberdayaan UMKM:** Memanfaatkan kemampuan komunikasi dan kerja sama tim untuk mengedukasi serta mendukung pengembangan usaha kecil berbasis nilai-nilai produk halal.
 
 ### 📜 Sertifikasi Kompetensi Lainnya
-* **Sertifikat Kemahiran Hukum dan Kenotariatan** – FSH UIN Sunan Ampel Surabaya (2024)
-* **Sertifikat Kompetensi Aplikasi Perkantoran** (Junior Computer Operator & Scientific Writing) – PUSTIPD UIN Sunan Ampel Surabaya (2023)
+
+* 🇬🇧 **English Proficiency Test Prediction of TOEFL®** – Dokter Speaking (Skor: **497** | Valid hingga Okt 2027)
+* ⚖️ **Sertifikat Kemahiran Hukum dan Kenotariatan** – FSH UIN Sunan Ampel Surabaya (2024)
+* 💻 **Sertifikat Kompetensi Aplikasi Perkantoran** (Junior Computer Operator & Scientific Writing) – PUSTIPD UIN Sunan Ampel Surabaya (2023)
+* 🛡️ **Sertifikat Pendamping Proses Produk Halal (P3H)** – BPJPH Kemenag RI (2023)
 * *Kumpulan berkas portofolio & bukti sertifikat lengkap:* [Google Drive Berkas Saya](https://google.com)
 
 ---
